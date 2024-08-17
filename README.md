@@ -20,7 +20,7 @@
 
 - 📫 How to reach me **pandit888abhishek@gmail.com .**
 
-- ⚡ Fun fact **NASA’s internet speed is 13,000 times faster than the average home internet connection.**
+- ⚡ Fun fact : **NASA’s internet speed is 13,000 times faster than the average home internet connection.**
 
  </div>
  
